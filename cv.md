@@ -3,13 +3,13 @@
 ---
 ### Contact information:
 
-**Telefon:
+**Telefon**:
 
-**E-mail:
+**E-mail**:
 
-**Telegram:
+**Telegram**:
 
-**Github:
+**Github**:
 
 ### About myself
 Soon
